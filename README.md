@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ngachann
-- 👀 I’m interested in 
+- 👀 I’m interested in fixxing bug. :>
 - 💞️ My major is computer science.
 - 📫 You can contact me via email ngachann02@gmail.com
 
